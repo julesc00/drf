@@ -1,0 +1,1 @@
+Stopped at minute 38:35
